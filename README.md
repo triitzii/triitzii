@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @triitzii !
+- 👀 I’m interested in everything that has to do with computers so i just put random stuff here.
+-
